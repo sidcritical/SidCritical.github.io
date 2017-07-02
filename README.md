@@ -1,1 +1,0 @@
-# SidCritical.github.io
